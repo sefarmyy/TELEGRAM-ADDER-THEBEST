@@ -23,11 +23,23 @@ telegram: @sercexyazilimtr /english,spanish,russian support
 🔒 LIFETIME LICENSE GUARANTEE
 💰 AFFORDABLE PRICE, FREE TECHNICAL SUPPORT, EASY INSTALLATION
 🛡 Flood & spam protection
+telegram: @sercexyazilimtr /english,spanish,russian support
+
 <img width="1918" height="1016" alt="1" src="https://github.com/user-attachments/assets/15f00d8a-2879-4e39-9900-f299c2589b14" />
+telegram: @sercexyazilimtr /english,spanish,russian support
 
 <img width="1918" height="1017" alt="5" src="https://github.com/user-attachments/assets/6ea573c8-2603-4ab2-9ca2-65e8077c1dbd" />
+telegram: @sercexyazilimtr /english,spanish,russian support
+
 <img width="1918" height="1012" alt="4" src="https://github.com/user-attachments/assets/65ba5da7-26f1-4cb3-ac3a-469aaa7b0989" />
+telegram: @sercexyazilimtr /english,spanish,russian support
+
 <img width="1918" height="1020" alt="3" src="https://github.com/user-attachments/assets/38752809-cfd4-4dd8-b96a-b536c2dcba0c" />
+telegram: @sercexyazilimtr /english,spanish,russian support
+
 <img width="1918" height="1021" alt="2" src="https://github.com/user-attachments/assets/a4aefd6a-8bb3-4502-818e-99b886e04186" />
+telegram: @sercexyazilimtr /english,spanish,russian support
+
 <img width="1918" height="1025" alt="6" src="https://github.com/user-attachments/assets/b5b36c04-fe71-4f11-9bcb-e74d750b9bfb" />
+telegram: @sercexyazilimtr /english,spanish,russian support
 
